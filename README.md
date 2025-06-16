@@ -1,0 +1,1 @@
+# AgroMind-AI-Product-Service-Prototype-Development-Financial-Modelling
